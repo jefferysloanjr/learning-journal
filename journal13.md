@@ -1,0 +1,4 @@
+# ***Jeffery Sloan***
+##### **My Journal** 13
+
+###### Today I was back in class ready to learn now that I am finally getting past this sickness. It was much of an eye opening day for me since I have fallen just a bit behind on the current project. I think I am somewhat caught up now. Still needs some tweaks but its getting there. I am so glad I'm finally getting better, I have been stressing so hard about not missing class that I do not want to fall behind. I feel I am still good. I hope so. It's kind of weird because I cannot stop thinking about school and assignments. I think I may have finally hit a bit of an insanity since I will wake up in the middle in the night and the only thought will be school. I still look forward to tomorrow. I want to make this work and make it far wherever i need to.
